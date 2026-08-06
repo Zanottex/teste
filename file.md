@@ -1,7 +1,7 @@
 ![Cachorro-Feliz](/tenor.gif)
 
 
-![TEste](https://tenor.com/pt-BR/view/cachorro-cachorro-arrombado-dedo-do-meio-gif-27537336)
+![Teste](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExNHFrZ205dDVsdmxtZXJ5MDMyZXNyem4xZ3p0dDZucDZ1dDY5d3NjeiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/XHeLeuirRbwptHhSWd/giphy.gif)
 
 
 
